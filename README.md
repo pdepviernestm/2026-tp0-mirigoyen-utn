@@ -12,3 +12,4 @@
 ### -Busco gente para jugar deep rock galactic en pc
 ### -Fan de dragon ball, juego al Legends y al dokkan
 ### -La conflagracion estigia fue lo peor que le paso al genshin impact
+![Mi foto](fotoMia.jpeg)
